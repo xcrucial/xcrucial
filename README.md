@@ -16,6 +16,9 @@
 
 we hope your rules and wisdom choke you. 
 
-01 [strawpage]() . 02 [carrd]() . 03 [guns . lol](https://guns.lol/xcrucialx)
+01 [guns . lol](https://guns.lol/xcrucialx)
 
+<h5 align="center">
+
+a male individual, I go by he / him . ametur traditonal and digitial artist with an infrared color style
 
