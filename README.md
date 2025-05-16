@@ -16,6 +16,6 @@
 
 we hope your rules and wisdom choke you. 
 
-01 [strawpage]() . 02 [carrd]() . 03 [guns . lol]()
+01 [strawpage]() . 02 [carrd]() . 03 [guns . lol](https://guns.lol/xcrucialx)
 
 
