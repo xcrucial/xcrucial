@@ -22,3 +22,5 @@ we hope your rules and wisdom choke you.
 
 a male individual, I go by he / him . ametur traditonal and digitial artist with an infrared color style
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=dd0808&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=314lk5plcho6tynqye2qelu5zs5m&redirect=true)
+
